@@ -1,5 +1,5 @@
-# LAZYDOZ
-
+# LAZYDOZ - DELL MUỐN LÀM
+làm 1 lần dùng cả đời
 
 
 <!---
