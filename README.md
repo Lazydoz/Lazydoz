@@ -1,5 +1,6 @@
 # LAZYDOZ - DELL MUỐN LÀM
-làm 1 lần dùng cả đời
+
+làm 1 lần dùng cả đời, mọi tiện ích trong một cú chạm.
 
 
 <!---
